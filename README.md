@@ -1,0 +1,1 @@
+# tugas-2-faizal-ardiansyah-04217053-deretan-bilangan-genap
